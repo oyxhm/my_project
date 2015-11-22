@@ -1,2 +1,2 @@
-i am fucking alone!
-are you lonely?
+i am fucking fucking alone!
+are you fucking lonely?
